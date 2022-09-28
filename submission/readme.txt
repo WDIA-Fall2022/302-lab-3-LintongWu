@@ -1,1 +1,3 @@
-Upload your lab here
+Lintong Wu
+040994127
+302
